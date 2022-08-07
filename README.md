@@ -1,1 +1,1 @@
-Assured MasterClass
+Assured Masterclass
